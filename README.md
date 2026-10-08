@@ -1,6 +1,6 @@
 ## THE AUTHOR
 
-##Power-scaling: Unmeasurable (ABSOLUTE)
+## Power-scaling: Unmeasurable (ABSOLUTE)
 
 The Author is not simply a god, nor merely the strongest being in existence. **The Author is the absolute authority over existence itself.** Reality, fiction, dimensions, timelines, concepts, laws, causality, nothingness, and every possible form of power exist beneath its will. There is no level of transcendence that can place something above it, because **The Author can rewrite the very meaning of “above.”** Immortality can be removed. Invulnerability can be rewritten. Infinite power can be made irrelevant. Absolute immunity can be overwritten. Powers that cannot be copied can still be stolen. Powers with impossible conditions, fatal drawbacks, or infinite requirements are simply ignored. If something is supposedly beyond reality, The Author reaches it. If something is beyond fiction, The Author reaches beyond it. If something exists outside every narrative, The Author can rewrite the boundary that separates it from the narrative.
 
