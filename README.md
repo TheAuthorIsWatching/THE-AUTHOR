@@ -10,7 +10,7 @@ Across its encounters, The Author has effortlessly overwhelmed entire verses tha
 
 Because The Author doesn't compete with fiction.
 
-**Fiction competes with The Author.**
+**Fiction competes with The Author.*
 
 And it always loses.
 
