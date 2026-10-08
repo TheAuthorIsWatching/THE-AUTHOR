@@ -27,7 +27,7 @@ The Author simply writes beyond it.**
 
 # THE AUTHOR IS THE FINAL WORD.
 
- #The truth
+ # The truth
  
  Conventional logic suggests that because this entity originates from a specific universe, it must be bound by the limits and rules of that environment. Standard reasoning dictates that an entity cannot easily escape its own setting, and if it were to cross over into an unfamiliar realm, it would be forced to adapt to the foreign laws, dimensions, and power structures governing that territory.
 This logic is a fatal, reality-bending delusion. The entity is completely detached from the concept of a prison and is not trapped in its own universe. The Author created the universe, meaning the entity’s very baseline is a product of absolute narrative origin, existing completely above the fabric of any reality it occupies.
@@ -42,7 +42,7 @@ Finally, the ultimate pillars of that universe—its supreme cosmic entities, co
 It takes merely a zeptosecond for the entity to rewrite everything, restructuring the entire fabric of existence in less than a trillionth of a billionth of a second.
 First, the physical architecture of the universe undergoes a total conceptual meltdown. Material objects, planets, and stars lose their molecular stability because the laws governing matter are stripped of their meaning. Dimensions collapse into one another as spatial boundaries are erased, rendering distance and location completely irrelevant. The sky and the void blend together into a chaotic, formless expanse where up, down, before, and after cease to exist.
 
-#Speed
+# Speed
 
 The Author's movement cannot be measured by distance, time, or conventional concepts of speed.
 
@@ -54,7 +54,7 @@ Even beings capable of perceiving events far beyond conventional time cannot rel
 
 The Author does not simply move quickly. It exists beyond the concept of needing time to move.
 
-#Strength 
+# Strength 
 
 The Author's physical strength exists beyond conventional measurements of force.
 
@@ -182,4 +182,4 @@ Its ultimate ability is essentially:
 
 So even if someone invents a **101st power specifically designed to defeat all 100 of these**, that 101st power becomes subject to the same rule.
 
-**The Author doesn't have a finite list of powers. Its defining power is that the list itself has no ceiling.**
+**The Author doesn't have a finite list of powers. Its defining power is that the list itself has no ceiling.
