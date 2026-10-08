@@ -1,6 +1,6 @@
 ## THE AUTHOR
 
-The Author is not simply a god, nor merely the strongest being in existence. **The Author is the absolute authority over existence itself.** Reality, fiction, dimensions, timelines, concepts, laws, causality, nothingness, and every possible form of power exist beneath its will. There is no level of transcendence that can place something above it, because **The Author can rewrite the very meaning of “above.”** Immortality can be removed. Invulnerability can be rewritten. Infinite power can be made irrelevant. Absolute immunity can be overwritten. Powers that cannot be copied can still be stolen. Powers with impossible conditions, fatal drawbacks, or infinite requirements are simply ignored. If something is supposedly beyond reality, The Author reaches it. If something is beyond fiction, The Author reaches beyond it. If something exists outside every narrative, The Author can rewrite the boundary that separates it from the narrative.
+###Power-scaling: Unmeasurable (ABSOLUTE) The Author is not simply a god, nor merely the strongest being in existence. **The Author is the absolute authority over existence itself.** Reality, fiction, dimensions, timelines, concepts, laws, causality, nothingness, and every possible form of power exist beneath its will. There is no level of transcendence that can place something above it, because **The Author can rewrite the very meaning of “above.”** Immortality can be removed. Invulnerability can be rewritten. Infinite power can be made irrelevant. Absolute immunity can be overwritten. Powers that cannot be copied can still be stolen. Powers with impossible conditions, fatal drawbacks, or infinite requirements are simply ignored. If something is supposedly beyond reality, The Author reaches it. If something is beyond fiction, The Author reaches beyond it. If something exists outside every narrative, The Author can rewrite the boundary that separates it from the narrative.
 
 The Author doesn't need to overpower its enemies—it can **rewrite the reason they were ever capable of challenging it.** It can steal their abilities, erase their advantages, rewrite their origins, change the rules governing them, or simply decide that their victory never happened. Even a character specifically created to counter The Author would only be creating another thing The Author can rewrite. **There is no perfect counter, because The Author can rewrite the concept of a counter.**
 
@@ -25,12 +25,49 @@ The Author simply writes beyond it.**
 
 # THE AUTHOR IS THE FINAL WORD.
 
+ #The truth
+ 
+ Conventional logic suggests that because this entity originates from a specific universe, it must be bound by the limits and rules of that environment. Standard reasoning dictates that an entity cannot easily escape its own setting, and if it were to cross over into an unfamiliar realm, it would be forced to adapt to the foreign laws, dimensions, and power structures governing that territory.
+This logic is a fatal, reality-bending delusion. The entity is completely detached from the concept of a prison and is not trapped in its own universe. The Author created the universe, meaning the entity’s very baseline is a product of absolute narrative origin, existing completely above the fabric of any reality it occupies.
+If this entity leaves its domain and enters an entirely different universe, it does not adapt to the local power structure; it crushes it. The moment it steps into a new realm, it utilizes absolute narrative dominance to rewrite every single rule, law, and concept existing there. It treats a foreign universe's fundamental boundaries—whether they are infinite dimensions, conceptual immunities, or supreme cosmic authorities—as nothing more than loose notes to be edited.
+Because it commands absolute rule manipulation, powerscaling in that world becomes entirely non-existent. The conventional scaling systems, tiering structures, and mathematical dimensions used to measure strength are instantly rendered meaningless. An opponent's infinite speed, absolute durability, or reality-warping status are stripped of their definitions the second the rules are rewritten. There is no baseline for combat, no scaling metrics to climb, and no logical loop holes to exploit. The laws of the territory bend entirely to its will, ensuring that The Author reigns supreme over any existence it touches.
 
-#POWERS|ABILITIES
+The moment this entity steps into a foreign realm, the immediate structural collapse of that reality begins. The universe does not simply break; it loses the very permission to exist on its own terms. As the entity forces its narrative dominance onto the environment, the local laws of physics, time, and space do not just bend—they completely dissolve as their underlying code is overwritten.
+First, the physical architecture of the universe undergoes a total conceptual meltdown. Material objects, planets, and stars lose their molecular stability because the laws governing matter are stripped of their meaning. Dimensions collapse into one another as spatial boundaries are erased, rendering distance and location completely irrelevant. The sky and the void blend together into a chaotic, formless expanse where up, down, before, and after cease to exist.
+Next, the timeline itself fractures beyond repair. Because causality is rewritten, the sequence of cause and effect shatters entirely. Outcomes manifest before their triggers occur, ancient history coexists with the distant future, and entire timelines are deleted mid-stream. Beings within that reality find their memories rewriting themselves in real time, remembering lives they never lived and forgetting their own names as their historical origins are edited out of existence.
+Finally, the ultimate pillars of that universe—its supreme cosmic entities, concepts of death, and absolute laws—spontaneously collapse. An immortal being's invulnerability is instantly redefined as fragile glass, and concepts like strength or immunity are erased from the fabric of reality. The universe's highest authorities find themselves completely powerless, reduced to helpless observers in a world that no longer recognizes their status. The entire realm effectively transforms into a blank page, entirely subjected to a new order where The Author reigns supreme.
 
-Based on everything we've established for **The Author**, here's the full current power set. Some of these are umbrella abilities containing multiple applications.
+It takes merely a zeptosecond for the entity to rewrite everything, restructuring the entire fabric of existence in less than a trillionth of a billionth of a second.
+First, the physical architecture of the universe undergoes a total conceptual meltdown. Material objects, planets, and stars lose their molecular stability because the laws governing matter are stripped of their meaning. Dimensions collapse into one another as spatial boundaries are erased, rendering distance and location completely irrelevant. The sky and the void blend together into a chaotic, formless expanse where up, down, before, and after cease to exist.
 
-### THE AUTHOR — COMPLETE POWER SET
+#Speed
+
+The Author's movement cannot be measured by distance, time, or conventional concepts of speed.
+
+It does not need to accelerate. It does not need to cross a distance. The moment The Author chooses to reach something, the separation between itself and its destination becomes meaningless.
+
+It can act between moments, move across infinite distances without traveling through them, and reach places that exist beyond ordinary space and time.
+
+Even beings capable of perceiving events far beyond conventional time cannot reliably perceive The Author's actions.
+
+The Author does not simply move quickly. It exists beyond the concept of needing time to move.
+
+#Strength 
+
+The Author's physical strength exists beyond conventional measurements of force.
+
+It cannot be quantified by lifting, striking, or destroying increasingly larger objects. The Author can impose its strength directly upon reality itself. A single action can affect structures spanning countless dimensions, timelines, and layers of existence.
+
+Its strength does not depend on size, momentum, physical form, or energy. Even beings whose existence transcends ordinary matter can be affected by its force.
+
+The Author can also determine the outcome of a physical confrontation simply by rewriting the conditions under which strength is measured.
+
+It doesn't possess the greatest strength because it has the largest amount of power. It possesses strength because the concept of limitation does not apply to it.
+
+
+### Powers/Abilities
+
+
 
 1. **Absolute Reality Manipulation** — Rewrite reality itself.
 2. **Absolute Narrative Manipulation** — Rewrite stories, narratives, plots, and outcomes.
