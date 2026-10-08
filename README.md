@@ -21,7 +21,7 @@ If it doesn't exist, The Author can create it.
 If it cannot be changed, The Author changes that fact.
 And if something somehow stands beyond all of this...**
 
-*The Author simply writes beyond it.
+*The Author simply writes beyond it.*
 
 # THE AUTHOR DOESN'T HAVE THE FINAL WORD.
 
